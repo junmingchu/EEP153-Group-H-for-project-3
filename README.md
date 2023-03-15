@@ -8,7 +8,7 @@ Max Mingxuan Xu   (510)-603-0589  email: max_xu@berkeley.edu  Github: max177777
 
 Sreelekha Vedagiri (949)-742-0235 email: sreev1@berkeley.edu     Github: SreeV1
 
-Junming Chu
+Junming Chu (510)-603-0146 email: junming0119@berkeley.edu Github : junmingchu
 
 Ian Fife
 
